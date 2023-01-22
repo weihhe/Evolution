@@ -7,3 +7,4 @@ Nothing happens - January 14, 2023
 I can't submit my code，Try it some other time——January 16, 2023
 新年快乐——January 18, 2023
 看春晚——January 21, 2023
+出去放烟花——January 22, 2023
